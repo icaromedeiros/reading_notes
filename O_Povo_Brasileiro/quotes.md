@@ -116,5 +116,6 @@ Precisa agora sê-lo no domínio da tecnologia da futura civilização,
 para se fazer uma potência econômica, de progresso autossustentado.
 
 Estamos nos construindo na luta para florescer amanhã como uma nova civilzação, mestiça e tropical, orgulhosa de si mesma.
+Mais alegre, porque mais sofrida.
 Melhor, porque incorpora em si mais humanidades.
 Mais generosa, porque aberta à convivência com todas as raças e todas as culturas e porque assentada na mais bela e luminosa província da Terra.
