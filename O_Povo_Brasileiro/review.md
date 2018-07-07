@@ -9,8 +9,4 @@ Já os finais de capítulo são particularmente instigantes, épicos.
 "Assim foi até se definir como uma nova identidade étnico-nacional, a de brasileiros.
 Um povo, até hoje, em ser, na dura busca de seu destino".
 
-Procurei o livro numa aventura polímata que começou com Sapiens e sabe-se lá onde acaba.
-A ideia é que a história de uma área de estudo pode me guiar nela,
-ainda que eu não saiba muito pouco a respeito delas.
-
 Notas completas em https://github.com/icaromedeiros/reading_notes/tree/master/O_Povo_Brasileiro
